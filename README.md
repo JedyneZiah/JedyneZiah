@@ -6,5 +6,5 @@
 
 💞️ I’m looking to collaborate on coding projects
 
-📫 How to reach me? Feel free to drop a message on my email jedynecaveria6@gmail.com and let's connect!
+📫 How to reach me? Feel free to drop a message on my email jedyneclaveria6@gmail.com and let's connect!
 
